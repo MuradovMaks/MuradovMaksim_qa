@@ -1,1 +1,0 @@
-# MuradovMaksim_qa
